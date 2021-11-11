@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harinivas03
-- 👀 I’m interested in cricketer
+- 👀 I’m interested in cricket
 - 🌱 I’m currently learning: AI&DS
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me instagram:kiddo_hari
